@@ -1,0 +1,2 @@
+# Parazetamol
+Parazetamol cheat fivem
